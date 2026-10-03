@@ -33,11 +33,11 @@
 > A demonstration of an impossible paradise — the coexistence of technology and nature.
 
 - **Тема:** взаимодействие человека с окружающей средой через технологии.
-  **Theme:** human interaction with the environment through technology.
+- **Theme:** human interaction with the environment through technology.
 - **Элементы:** роботы-птицы (механизированная природа), лес из труб (искусственная среда).
-  **Elements:** robotic birds (mechanized nature), a forest of pipes (artificial environment).
+- **Elements:** robotic birds (mechanized nature), a forest of pipes (artificial environment).
 - **Посыл:** попытки улучшить природу могут привести к её разрушению. «Хотели как лучше, а получилось как всегда».
-  **Message:** attempts to improve nature can lead to its destruction. "We wanted the best, but it turned out as always."
+- **Message:** attempts to improve nature can lead to its destruction. "We wanted the best, but it turned out as always."
 
 ---
 
