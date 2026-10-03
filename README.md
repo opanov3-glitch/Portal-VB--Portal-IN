@@ -1,2 +1,63 @@
 # Portal-VB--Portal-IN
-Portal VB , Portal IN — hybrid installation: electronics, video, AI, ready-made, painting. NXT, HAMR, GRAY ZONE.
+Portal VB + Portal IN — hybrid installation: electronics, video, AI, ready-made, painting. Art Group HAMR · GRAY ZONE.
+# Oleg NXT · HAMR
+
+**Stанция 3 :: {РОЩА}**
+*Hybrid Technological Art. Location: GRAY ZONE*
+
+Куратор, художник, инженер. Гибридные инсталляции: живопись + readymade + электроника + ИИ-видео.
+
+---
+
+## Инсталляции
+
+- **Портал VB**
+- **Портал IN**
+
+*Электроника, видео, ИИ, ready-made, живопись.*
+
+---
+
+## Концепция
+
+Демонстрация несбыточного рая — сосуществования технологий и природы.
+
+- **Тема:** взаимодействие человека с окружающей средой через технологии.
+- **Элементы:** роботы-птицы (механизированная природа), лес из труб (искусственная среда).
+- **Посыл:** попытки улучшить природу могут привести к её разрушению. «Хотели как лучше, а получилось как всегда».
+
+---
+
+## Манифест
+
+> В серой зоне нет нейтрального цвета.
+> Щиты — стены, которые стали проводниками.
+> Трубы — артерии, в которых течёт не вода, а данные и свет.
+> Электроника и ready-made встречаются в одной системе,
+> где ИИ разрастается, как корни в почве.
+>
+> РОЩА — это не лес, а сеть: каждая работа — узел, каждый автор — корневище.
+> Здесь нет зрителя — есть соучастник.
+> Это Stанция 3: вход открыт, выхода нет.
+
+---
+
+## Видео
+
+- Зона Комфорта
+- Experiment 01 [Fr]
+- Experiment 02 [Fg]
+- Experiment 03 [Fj]
+
+---
+
+## Контакты
+
+- Email: opanov3@gmail.com
+- Instagram: [olegart20](https://www.instagram.com/olegart20/)
+- Facebook: [OlegNxt](https://www.facebook.com/OlegNxt/)
+- VK: [olegnxt](https://vk.ru/olegnxt)
+
+---
+
+*Art Group HAMR · Oleg NXT*
